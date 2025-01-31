@@ -12,6 +12,7 @@
 * I am pursuing my Bachelors in Computer Science 💻
 * I like running ventures that contribute to make people's lives more thrilling and safe!
 
+[Click me for surpirse](https://sak-drago.github.io/)
 ***
 
 # Socials:
