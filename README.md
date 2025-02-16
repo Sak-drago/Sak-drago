@@ -7,7 +7,7 @@
 
 # About Me:!
 
-* Currently working on redefining Entrepenuership and 3 Business Ventures
+* Currently working on little bit of everything.
 * I am a student at IIIT-D 📖
 * I am pursuing my Bachelors in Computer Science 💻
 * I like running ventures that contribute to make people's lives more thrilling and safe!
